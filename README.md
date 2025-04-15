@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **lezipher@gmail.com**
 
-- ⚡ Fun fact **I love Nguyen Hoang Khanh Van and I think she won't see this:)))**
+- ⚡ Fun fact **I love her and I think she won't see this:)))**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
